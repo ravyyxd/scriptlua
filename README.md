@@ -1,4 +1,4 @@
-# Conceptualist :bird: :projector:#
+# Conceptualist :bird: :projector: #
 
 offer your ideas, designs, examples and create your own ui for zex :thumbsup: 
 
